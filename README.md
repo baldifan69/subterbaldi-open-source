@@ -1,2 +1,1 @@
-becouse github does not upload zips that are bigger then 25MB heres a mega link
-https://mega.nz/file/qxxyzBbJ#SEeYkY_PC_d94Q6Z0un-4jsMUsbNJuBU0lG-YSaqSss
+So people got concerned about the megalink so that's why I took it down so yeah  
